@@ -1,0 +1,1 @@
+o curso da Gama Academy está sendo muito produtivo e de fácil entendimento.
